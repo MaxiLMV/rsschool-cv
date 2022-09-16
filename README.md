@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://MaxiLMV.github.io/rsschool-cv/cv
