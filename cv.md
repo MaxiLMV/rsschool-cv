@@ -3,7 +3,7 @@
 
 ## Education
 
-Currently studying at Transport and Telecommuntication Institute
+Currently studying at Transport and Telecommunication Institute
 
 ## Practical skills
 
